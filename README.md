@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @abd4errahmane;<br>👀 I’m interested in software engineering;<br>🌱 I’m currently focusing on front-end web developing;<br>to reach me here is my email : abderrahmanebded@gmail.com;<br>⚡ Fun fact: FOCUSED
+👋 Hi, I’m @abd4errahmane;<br>👀 I’m interested in software engineering;<br>🌱 I’m currently focusing on front-end web developing;<br>to reach me here is my email : abderrahmanebded@gmail.com;<br>⚡ Fun fact: Full FOCUSED..
 
 
 ## 🌐 Socials:
